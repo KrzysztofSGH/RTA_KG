@@ -1,1 +1,1 @@
-# RTA_-KG-
+# RTA_KG
